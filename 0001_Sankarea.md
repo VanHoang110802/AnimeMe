@@ -1,10 +1,3 @@
-> Sankarea \
-> さんかれあ \
-> Sankarea: Undying Love
-
-
----
-
 # 🧟‍♀️ Sankarea – Thông tin cơ bản
 
 * **Tên gốc:** さんかれあ (Sankarea)
