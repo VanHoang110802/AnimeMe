@@ -2,9 +2,6 @@
 > さんかれあ \
 > Sankarea: Undying Love
 
----
-
-# 🧟‍♀️ **Sankarea: Undying Love (さんかれあ)** – Tóm tắt FULL
 
 ---
 
