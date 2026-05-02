@@ -54,7 +54,7 @@
 * Rea gặp Chihiro → biết về thuốc hồi sinh
 * Cô uống thử trước khi bỏ trốn
 
-➡️ Ngã từ vách đá → **chết thật**
+➡️ Ngã từ vách đá → **chết thật** \
 ➡️ Nhưng thuốc kích hoạt → **hồi sinh thành zombie**
 
 ---
