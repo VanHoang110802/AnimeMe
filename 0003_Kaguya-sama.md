@@ -1,3 +1,5 @@
+# 🧾 Thông tin cơ bản
+
 * **Tên tiếng Anh:** *Kaguya-sama: Love Is War*
 
 * **Tác giả nguyên tác:** Aka Akasaka
