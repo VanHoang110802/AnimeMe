@@ -5,122 +5,154 @@
 
 ---
 
-## 🧠 **Tổng quan**
+# 🧟‍♀️ Sankarea – Thông tin cơ bản
 
-* Thể loại: Romance, Ecchi, Horror nhẹ, Zombie
-* Main:
+* **Tên gốc:** さんかれあ (Sankarea)
 
-  * **Chihiro Furuya** – otaku zombie
-  * **Rea Sanka** – tiểu thư bị kiểm soát
+* **Tác giả nguyên tác:** Mitsuru Hattori
 
----
+* **Năm phát hành manga:** 2009 → 2014
 
-# 📺 **PHẦN 1: ANIME (12 tập + OVA)**
+* **Số tập:** 11 tập
 
-## 🔬 Khởi đầu – Thằng main “bệnh zombie”
+* **Anime phát hành:** 2012
 
-* Chihiro cực kỳ ám ảnh zombie, thậm chí còn muốn **có bạn gái zombie**
-* Con mèo của nó chết → nó cố **hồi sinh bằng thuốc tự chế**
+* **Studio:** Studio Deen
 
-➡️ Thuốc được thử nghiệm nhưng… fail.
+* **Số tập:** 12 tập + OVA
 
----
-
-## 🏰 Rea xuất hiện – Cuộc sống ngột ngạt
-
-* Rea là con gái nhà giàu, bị bố là **Dan'ichirō Sanka** kiểm soát bệnh hoạn
-
-  * Chụp ảnh cơ thể con gái
-  * Cấm giao tiếp xã hội
-* Cô bắt đầu **muốn chết để được tự do**
-
-➡️ Gặp Chihiro → biết về thuốc hồi sinh → muốn thử
+* **Thể loại:** Romance, Ecchi, Horror nhẹ, Supernatural
 
 ---
 
-## 💀 Cái chết thật sự
+# 📺 PHẦN 1: ANIME (TÓM TẮT FULL)
 
-* Trong lúc bỏ trốn khỏi bố → Rea ngã từ vách đá
-* Trước đó đã uống thuốc → **chết → hồi sinh thành zombie**
+## 🔬 Khởi đầu – Ám ảnh bệnh hoạn nhưng… chân thành
 
----
+* **Chihiro Furuya** là một thằng otaku **ám ảnh zombie cực nặng**
+* Nó còn nói thẳng: *“Tao chỉ thích con gái zombie”*
+* Con mèo chết → nó thử chế thuốc hồi sinh
 
-## 🧟‍♀️ Cuộc sống zombie bắt đầu
-
-* Rea trở thành zombie:
-
-  * Cơ thể bắt đầu **phân hủy từ từ**
-  * Phải ăn **lá hoa tú cầu (hydrangea)** để duy trì
-
-➡️ Chihiro đạt được “ước mơ” = có bạn gái zombie 😐
+➡️ Mục tiêu ban đầu rất “biến thái”, nhưng lại là nền cho toàn bộ câu chuyện
 
 ---
 
-## 🧨 Conflict
+## 🏰 Rea – Cuộc sống bị giam cầm
 
-* Bố Rea phát hiện → muốn “thu hồi” con gái
-* Xuất hiện tổ chức nghiên cứu zombie (hint lớn từ manga)
+* **Rea Sanka** là tiểu thư nhà giàu nhưng sống như tù nhân
+* Bị bố **Dan'ichirō Sanka**:
+
+  * Kiểm soát cực đoan
+  * Ám ảnh bệnh hoạn (chụp ảnh cơ thể con gái…)
+
+➡️ Rea bắt đầu có suy nghĩ: **chết = tự do**
+
+---
+
+## 💀 Cái chết & sự tái sinh
+
+* Rea gặp Chihiro → biết về thuốc hồi sinh
+* Cô uống thử trước khi bỏ trốn
+
+➡️ Ngã từ vách đá → **chết thật**
+➡️ Nhưng thuốc kích hoạt → **hồi sinh thành zombie**
+
+---
+
+## 🧟‍♀️ Cuộc sống “bạn gái zombie”
+
+* Rea bắt đầu sống cùng Chihiro
+
+### Nhưng:
+
+* Cơ thể:
+
+  * Phân hủy dần
+  * Mất cảm giác
+* Phải ăn **lá hoa tú cầu** để duy trì
+
+➡️ “Giấc mơ” của Chihiro thành hiện thực… nhưng không hề đẹp
+
+---
+
+## 🧨 Xung đột
+
+* Bố Rea truy tìm để “thu hồi” con gái
+* Xuất hiện hint về **nghiên cứu zombie & gia tộc Sanka**
 
 ---
 
 ## ❤️ Tình cảm
 
-* Rea dần thích Chihiro thật sự
-* Nhưng:
+* Rea dần:
 
-  * Cô là xác sống
-  * Thời gian tồn tại có hạn
+  * Cảm nhận được “sống” lần nữa
+  * Thật sự yêu Chihiro
 
-➡️ Anime kết thúc **mở**, chưa đi đến kết cục thật
+* Chihiro:
 
----
-
-# 📚 **PHẦN 2: MANGA (FULL STORY – QUAN TRỌNG)**
-
-👉 Đây mới là **cốt truyện hoàn chỉnh**, anime chỉ cover ~1/3
+  * Từ fetish → chuyển thành **tình cảm thật**
 
 ---
 
-## 🧪 Bí mật thật sự về zombie
+## ⚠️ Kết anime
 
-* Zombie không phải ngẫu nhiên
-* Liên quan đến **thí nghiệm từ lâu đời của gia tộc Sanka**
+➡️ Dừng ở mức:
 
-➡️ Rea không phải trường hợp duy nhất
+* Rea vẫn là zombie
+* Tình cảm đang phát triển
+* Nhiều bí ẩn chưa giải quyết
+
+👉 **ENDING mở (chưa phải kết thật)**
 
 ---
 
-## 🧬 Cơ thể Rea ngày càng tệ
+# 📚 PHẦN 2: MANGA (NỘI DUNG FULL – QUAN TRỌNG)
+
+## 🧪 Sự thật về zombie
+
+* Không phải tai nạn
+* Liên quan đến:
+
+  * **Thí nghiệm lâu đời**
+  * Gia tộc Sanka
+
+➡️ Rea chỉ là **một mắt xích**
+
+---
+
+## 🧬 Cơ thể Rea xuống cấp
 
 * Bị:
 
-  * Mất cảm giác
-  * Phân hủy nội tạng
+  * Hoại tử dần
   * Mất kiểm soát
+  * Có xu hướng **ăn thịt người**
 
-➡️ Nguy cơ trở thành **zombie hoàn toàn vô thức**
-
----
-
-## 🧠 Phát triển của Chihiro
-
-* Từ thằng “biến thái zombie” → bắt đầu:
-
-  * Quan tâm Rea như con người
-  * Muốn cứu cô thật sự
-
-➡️ Character development khá rõ
+➡️ Đây là phần **dark hơn rất nhiều anime**
 
 ---
 
-## 🏚️ Gia đình Sanka – Dark hơn bạn nghĩ
+## 🧠 Phát triển nhân vật Chihiro
 
-* Bố Rea không chỉ变态 mà còn:
+* Bỏ dần “fetish zombie”
+* Nhận ra:
+
+  > Mình không yêu zombie… mình yêu Rea
+
+➡️ Đây là core thật của câu chuyện
+
+---
+
+## 🏚️ Gia đình Sanka – bệnh hoạn + khoa học
+
+* Bố Rea không chỉ变态
+* Mà còn:
 
   * Bị ám ảnh kiểm soát
-  * Có liên quan đến bí mật zombie
+  * Liên quan trực tiếp đến nghiên cứu zombie
 
-➡️ Gia đình này **có lịch sử bệnh hoạn + khoa học dị dạng**
+➡️ Gia đình này = **gốc rễ bi kịch**
 
 ---
 
@@ -128,53 +160,60 @@
 
 * Rea:
 
-  * Bắt đầu mất dần “nhân tính”
-  * Có lúc gần như **ăn thịt người**
+  * Gần mất hoàn toàn nhân tính
+  * Có nguy cơ trở thành **xác sống vô thức**
 
-➡️ Đây là đoạn khá dark mà anime không có
+➡️ Mối quan hệ bị đẩy tới giới hạn:
 
----
-
-# 🧨 **ENDING (MANGA – KẾT THÚC THẬT)**
-
-## 🧬 Cách giải quyết
-
-* Tìm được phương pháp **ổn định trạng thái zombie**
-* Không hoàn toàn chữa khỏi → nhưng:
-
-  * Rea **duy trì ý thức**
-  * Không bị phân hủy nặng nữa
+* Yêu một người… đang dần không còn là con người
 
 ---
 
-## ❤️ Kết cục tình cảm
+# 🧨 PHẦN 3: ENDING (KẾT THÚC THẬT)
 
-* Rea & Chihiro:
+## 🧬 Giải pháp
 
-  * Chính thức ở bên nhau
-  * Sống kiểu “nửa người – nửa zombie”
+* Tìm được cách:
 
-➡️ Không phải happy ending hoàn toàn
-➡️ Nhưng là **bittersweet (ngọt đắng)**
+  * Ổn định trạng thái zombie
+  * Làm chậm phân hủy
 
----
-
-# ⚠️ **NHỮNG ĐIỂM ANIME BỎ QUA**
-
-Anime bỏ rất nhiều:
-
-* Lore về zombie (rất quan trọng)
-* Dark side của Rea (suýt mất nhân tính)
-* Phát triển tâm lý Chihiro
-* Kết thúc thật
-
-➡️ Anime chỉ là “mở đầu + fanservice + romcom nhẹ”
+➡️ Không cure hoàn toàn
 
 ---
 
-# 🧩 **TÓM GỌN 1 CÂU**
+## ❤️ Kết cục
 
-> Một thằng nghiện zombie có bạn gái zombie…
-> nhưng dần nhận ra: **yêu một xác chết không hề lãng mạn như tưởng tượng.**
+* Rea:
+
+  * Vẫn là zombie
+  * Nhưng giữ được ý thức
+
+* Chihiro:
+
+  * Chấp nhận cô hoàn toàn
+
+➡️ Hai người **ở bên nhau**
 
 ---
+
+## 🎭 Bản chất ending
+
+* Không phải happy hoàn toàn
+* Không bi kịch hoàn toàn
+
+👉 **Bittersweet ending (ngọt nhưng đắng)**
+
+---
+
+# ⚠️ ANIME BỎ GÌ?
+
+* Toàn bộ:
+
+  * Lore zombie
+  * Sự xuống cấp của Rea
+  * Cao trào tâm lý
+  * Ending thật
+
+➡️ Anime = phần “romance nhẹ + mở đầu” \
+➡️ Manga = **câu chuyện thật**
