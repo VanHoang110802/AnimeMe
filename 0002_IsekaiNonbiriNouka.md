@@ -1,7 +1,3 @@
-# 🌱 **Isekai Nonbiri Nouka (異世界のんびり農家)**
-
----
-
 # 🧾 Thông tin cơ bản
 
 * **Tên tiếng Anh:** *Farming Life in Another World*
