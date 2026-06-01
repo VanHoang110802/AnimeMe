@@ -1,0 +1,15 @@
+**Kage no Jitsuryokusha ni Naritakute!** kể về **Cid Kagenou**, một cậu bé từ nhỏ đã không mơ trở thành anh hùng hay vua quỷ như những nhân vật chính thông thường. Thứ Cid khao khát là trở thành một "kẻ đứng trong bóng tối" – người bí mật thao túng mọi thứ từ phía sau, cực kỳ mạnh nhưng không ai biết danh tính thật. Vì mục tiêu đó, ở thế giới cũ cậu đã dành cả tuổi thơ để luyện tập võ thuật, tăng cường thể lực và tưởng tượng ra những tổ chức bí mật do mình lãnh đạo.
+
+Sau một tai nạn, Cid chết và được tái sinh vào một thế giới fantasy có ma thuật. Đối với cậu, đây chính là cơ hội hoàn hảo để thực hiện giấc mơ thời thơ ấu. Dưới thân phận quý tộc bình thường, Cid luôn cố tình đóng vai một nhân vật phụ không nổi bật. Tuy nhiên, vào ban đêm cậu lại hoạt động với danh nghĩa **Shadow**, thủ lĩnh của tổ chức bí mật mang tên **Shadow Garden**.
+
+Mọi chuyện bắt đầu khi Cid cứu một cô gái bị nguyền rủa tên **Alpha**. Để tăng phần kịch tính cho vai diễn của mình, cậu bịa ra một câu chuyện rằng thế giới đang bị thao túng bởi một tổ chức tà ác cổ xưa gọi là **Cult of Diablos**, và Shadow Garden tồn tại để chống lại chúng. Điều hài hước là Cid hoàn toàn nghĩ đây chỉ là sản phẩm tưởng tượng của mình.
+
+Nhưng không ngờ mọi lời nói bịa đặt ấy lại đúng 100%.
+
+Cult of Diablos thực sự tồn tại, đang hoạt động trong bóng tối và có âm mưu ảnh hưởng đến cả thế giới. Trong khi Cid chỉ đang tận hưởng việc nhập vai nhân vật "trùm cuối bí ẩn", các thành viên Shadow Garden lại nghiêm túc tin tưởng cậu và liên tục chiến đấu chống lại tổ chức tà ác đó. Kết quả là Cid vô tình trở thành người lãnh đạo một thế lực cực mạnh mà bản thân không hề nhận thức đầy đủ về những gì đang xảy ra.
+
+Khi Shadow Garden ngày càng mở rộng, nhiều thành viên ưu tú như **Beta**, **Gamma**, **Delta**, **Epsilon**, **Zeta** và **Eta** xuất hiện. Họ không chỉ là những chiến binh mạnh mẽ mà còn xây dựng mạng lưới tình báo, thương mại và ảnh hưởng chính trị trên khắp các quốc gia. Trong khi đó, Cid vẫn tiếp tục cuộc sống học sinh bình thường vào ban ngày, luôn tìm kiếm cơ hội để thực hiện những màn xuất hiện thật "ngầu" đúng với hình tượng mà mình yêu thích.
+
+Xuyên suốt câu chuyện, các quốc gia, hiệp sĩ, công chúa và nhiều thế lực lớn liên tục bị cuốn vào cuộc chiến với Cult of Diablos. Những âm mưu kéo dài hàng trăm năm dần được hé lộ, còn Shadow Garden ngày càng trở thành một tổ chức có sức ảnh hưởng khổng lồ. Trớ trêu thay, người duy nhất không hiểu toàn bộ bức tranh là chính Cid. Cậu luôn cho rằng mọi việc chỉ là sự trùng hợp hoặc do thuộc hạ quá nhập tâm vào trò chơi của mình.
+
+**Kage no Jitsuryokusha ni Naritakute!** là sự kết hợp giữa isekai, hành động, fantasy và hài hước. Điểm hấp dẫn lớn nhất của tác phẩm nằm ở việc nhân vật chính cực kỳ mạnh nhưng không hề muốn làm anh hùng; thay vào đó, cậu chỉ muốn đóng vai "ông trùm bí ẩn" đứng sau hậu trường. Trong khi cả thế giới đang trải qua những cuộc chiến sinh tử và các âm mưu quy mô lớn, Cid vẫn vui vẻ nghĩ rằng mình chỉ đang diễn một vở kịch do chính mình tạo ra. Điều đó tạo nên hàng loạt tình huống vừa ngầu, vừa hài và là nét đặc trưng khiến bộ truyện trở nên nổi tiếng.
