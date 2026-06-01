@@ -1,0 +1,13 @@
+**Gimai Seikatsu** kể về **Yuuta Asamura**, một nam sinh trung học sống cùng cha sau khi mẹ qua đời. Cuộc sống bình lặng của cậu thay đổi khi cha tái hôn, khiến Yuuta bất ngờ có một người em gái kế mới là **Saki Ayase**, một nữ sinh nổi tiếng ở trường vì vẻ ngoài xinh đẹp và trưởng thành.
+
+Do đều lớn lên trong những hoàn cảnh gia đình không trọn vẹn, Yuuta và Saki đã quen với việc tự lập và không muốn trở thành gánh nặng cho người khác. Khi bắt đầu sống chung dưới một mái nhà, cả hai thống nhất sẽ giữ khoảng cách vừa đủ, tôn trọng cuộc sống riêng của nhau và cố gắng trở thành anh em kế bình thường. Ban đầu, mối quan hệ của họ khá khách sáo, gần như chỉ trò chuyện khi cần thiết và luôn cẩn thận để không làm đối phương khó xử.
+
+Tuy nhiên, khi cùng ăn uống, học tập, làm việc nhà và trải qua những sinh hoạt thường ngày, Yuuta và Saki dần hiểu nhau hơn. Yuuta nhận ra phía sau vẻ ngoài mạnh mẽ, Saki là một cô gái luôn cố gắng tự mình gánh vác mọi thứ và hiếm khi dựa vào người khác. Trong khi đó, Saki cũng nhận ra Yuuta là người chu đáo, biết quan tâm đến cảm xúc của người xung quanh và luôn cố gắng cư xử trưởng thành dù bản thân cũng mang nhiều áp lực riêng.
+
+Câu chuyện tập trung vào quá trình hai người xây dựng lòng tin và sự gắn kết trong vai trò gia đình mới. Thay vì phát triển nhanh chóng, mối quan hệ của họ thay đổi rất từ tốn qua những cuộc trò chuyện, những lần giúp đỡ lẫn nhau và những khoảnh khắc đời thường. Càng tiếp xúc, họ càng trở nên quan trọng đối với nhau, đồng thời bắt đầu đối mặt với những cảm xúc phức tạp nảy sinh từ việc vừa là người thân trên danh nghĩa, vừa là hai thiếu niên đang trưởng thành.
+
+Bên cạnh đó, tác phẩm cũng khai thác những vấn đề như sự cô đơn, áp lực gia đình, giá trị của các mối quan hệ và cách con người học cách mở lòng với người khác. Nhiều tình huống trong truyện không được đẩy lên cao trào bằng drama lớn mà được thể hiện thông qua những thay đổi rất nhỏ trong suy nghĩ và cách cư xử của các nhân vật.
+
+Khác với nhiều bộ rom-com học đường thiên về hài hước, **Gimai Seikatsu** có nhịp truyện chậm, nhẹ nhàng và thực tế hơn. Trọng tâm không nằm ở những tình huống gây cười hay hiểu lầm liên tiếp, mà là quá trình hai con người từng quen sống một mình dần học cách chia sẻ cuộc sống với nhau. Chính sự phát triển tâm lý tinh tế và không khí đời thường đã trở thành điểm nổi bật của tác phẩm.
+
+Tóm lại, **Gimai Seikatsu** là câu chuyện về một nam sinh và một nữ sinh trở thành anh em kế sau khi cha mẹ họ tái hôn. Từ những người xa lạ sống chung nhà, họ dần xây dựng sự thấu hiểu, tin tưởng và trở thành chỗ dựa tinh thần của nhau, tạo nên một câu chuyện thanh xuân nhẹ nhàng, sâu lắng và giàu cảm xúc.
