@@ -1,33 +1,7 @@
-Kaguya-sama: Love Is War kể về Miyuki Shirogane và Kaguya Shinomiya — hai học sinh xuất sắc của hội học sinh trường Shuchiin. Cả hai đều thích nhau nhưng quá tự tôn nên không ai chịu tỏ tình trước, vì nghĩ người tỏ tình trước sẽ là “kẻ thua cuộc”. Từ đó hàng loạt màn đấu trí tình cảm bắt đầu.
+**Kaguya-sama wa Kokurasetai? ~Tensai-tachi no Renai Zunousen~** tiếp tục câu chuyện tại Học viện Shuchiin, nơi chủ tịch hội học sinh Miyuki Shirogane và phó chủ tịch Kaguya Shinomiya đều đã nhận ra tình cảm dành cho đối phương. Tuy nhiên, vì lòng kiêu hãnh quá lớn, cả hai đều không muốn trở thành người tỏ tình trước. Từ đó, mỗi cuộc trò chuyện, mỗi lần gặp gỡ hay mỗi sự kiện trong trường đều có thể biến thành một "trận chiến tâm lý", nơi cả hai cố gắng dẫn dắt tình huống để đối phương là người phải chủ động bày tỏ tình cảm. Những kế hoạch tưởng như hoàn hảo thường xuyên bị phá hỏng bởi những yếu tố ngoài dự kiến, đặc biệt là sự xuất hiện của cô thư ký vô tư Chika Fujiwara, khiến nhiều màn đấu trí kết thúc theo những cách đầy hài hước.
 
-Trong hội học sinh còn có Chika Fujiwara — cô gái vô tư thường phá hỏng mọi kế hoạch, và Yu Ishigami — nam sinh u ám, bị hiểu lầm trong quá khứ nhưng được Shirogane cứu giúp và đưa vào hội học sinh. Sau này còn có Miko Iino gia nhập, một cô gái nghiêm túc luôn cãi nhau với Ishigami.
+Trong phần này, câu chuyện không chỉ tập trung vào Kaguya và Shirogane mà còn dành nhiều thời lượng hơn cho các thành viên khác của hội học sinh. Yu Ishigami dần mở lòng hơn với mọi người sau những biến cố trong quá khứ, đồng thời bắt đầu xây dựng các mối quan hệ mới. Sự gia nhập của Miko Iino mang đến nhiều tình huống đối đầu hài hước với Ishigami vì tính cách và quan điểm gần như trái ngược nhau. Trong khi đó, các hoạt động thường ngày của hội học sinh như bầu cử, lễ hội thể thao, các kỳ nghỉ hay những buổi sinh hoạt chung liên tục tạo ra cơ hội để các nhân vật hiểu nhau hơn.
 
-Ban đầu câu chuyện chủ yếu là comedy và mind game:
+Dù bề ngoài vẫn là một bộ rom-com với những màn đấu trí cường điệu và hài hước, phần này bắt đầu khai thác sâu hơn nội tâm của các nhân vật. Shirogane không còn chỉ là một học sinh thiên tài hoàn hảo mà còn là người luôn phải nỗ lực hết sức để duy trì thành tích học tập. Kaguya dần thoát khỏi hình ảnh một tiểu thư lạnh lùng và bộc lộ nhiều cảm xúc chân thật hơn khi ở cạnh bạn bè. Những khác biệt về địa vị xã hội, hoàn cảnh gia đình và tương lai của cả hai cũng bắt đầu được đặt ra như những trở ngại thực sự trong mối quan hệ của họ.
 
-* tìm cách khiến đối phương đỏ mặt,
-* ép người kia nhắn tin trước,
-* dụ đối phương mời đi chơi,
-* giả vờ thờ ơ dù rất thích nhau.
-
-Dần dần Kaguya thay đổi vì hội học sinh. Từ một tiểu thư lạnh lùng bị gia đình kiểm soát, cô bắt đầu biết kết bạn, ghen tuông, vui vẻ và muốn sống như người bình thường. Trong khi đó Shirogane luôn cố gắng học hành đến kiệt sức vì cảm thấy mình không xứng với Kaguya do khác biệt địa vị xã hội.
-
-Song song với cặp chính, manga đào sâu quá khứ của Ishigami. Cậu từng cố bảo vệ một nữ sinh khỏi bạn trai bạo lực nhưng bị hiểu lầm thành kẻ gây rối, khiến cả trường xa lánh. Sau khi vào hội học sinh, Ishigami dần thay đổi và sau này thích đàn chị Tsubame. Cậu cố gắng cải thiện bản thân để theo đuổi cô, nhưng cuối cùng bị từ chối. Tuy vậy trải nghiệm đó giúp Ishigami trưởng thành hơn. Trong lúc đó Miko Iino dần nảy sinh tình cảm với cậu.
-
-Bước ngoặt lớn của truyện là arc lễ hội văn hóa. Shirogane chuẩn bị một màn tỏ tình cực kỳ công phu trên sân thượng trường. Sau nhiều vòng đấu trí, Kaguya cuối cùng chấp nhận tình cảm của mình và hai người chính thức thành đôi.
-
-Từ đây manga chuyển sang giai đoạn hẹn hò:
-
-* cả hai học cách yêu thật sự,
-* đối diện insecurity,
-* lo lắng về tương lai.
-
-Shirogane quyết định sang Mỹ học ở Stanford, còn Kaguya phải đối mặt với gia tộc Shinomiya — một gia đình tài phiệt kiểm soát con cái rất khắc nghiệt. Gia đình cô muốn lợi dụng cô cho mục đích chính trị và ngăn cản mối quan hệ với Shirogane.
-
-Arc cuối xoay quanh việc Kaguya chống lại gia đình mình với sự giúp đỡ của hội học sinh. Sau nhiều biến cố, cô dần giành được tự do cho bản thân.
-
-Kết thúc truyện:
-
-* Shirogane sang Mỹ du học,
-* Kaguya tiếp tục xử lý chuyện gia đình trước khi tới với cậu,
-* Ishigami và Iino được ngụ ý sẽ thành một cặp,
-* hội học sinh mỗi người bước tiếp con đường trưởng thành của riêng mình.
+Xuyên suốt câu chuyện, những "trận chiến tình yêu" vẫn tiếp diễn nhưng kết quả không còn đơn thuần là thắng hay thua. Qua từng sự kiện, Kaguya và Shirogane ngày càng quan tâm đến nhau nhiều hơn, dần hiểu rõ cảm xúc của bản thân và bắt đầu tiến những bước quan trọng trong mối quan hệ. Vì vậy, phần này vừa giữ được nét hài hước đặc trưng của series, vừa đóng vai trò như giai đoạn phát triển tình cảm và trưởng thành của toàn bộ dàn nhân vật, chuẩn bị cho những bước ngoặt lớn hơn ở các phần tiếp theo.
