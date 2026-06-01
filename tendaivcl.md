@@ -1,0 +1,13 @@
+**DanMachi** lấy bối cảnh tại thành phố mê cung **Orario**, nơi các vị thần từ thiên giới xuống sống cùng con người. Tại đây, họ lập nên các "Familia" (gia tộc) và ban sức mạnh cho những người theo mình để khám phá Dungeon – một mê cung khổng lồ nằm dưới lòng đất chứa đầy quái vật, kho báu và những bí ẩn chưa được giải đáp.
+
+Nhân vật chính là **Bell Cranel**, một cậu thiếu niên mới bắt đầu cuộc sống mạo hiểm giả. Bell là thành viên duy nhất của **Hestia** Familia, một gia tộc nhỏ gần như vô danh và rất nghèo. Dù không có tài năng nổi bật hay hậu thuẫn mạnh mẽ, Bell vẫn mang trong mình ước mơ trở thành anh hùng giống như những câu chuyện mà ông nội từng kể.
+
+Trong lần đầu khám phá Dungeon, Bell suýt mất mạng trước một con Minotaur nhưng được cứu bởi nữ kiếm sĩ nổi tiếng **Ais Wallenstein**, thành viên của Familia mạnh nhất thành phố. Từ khoảnh khắc đó, Bell đem lòng ngưỡng mộ Ais và quyết tâm trở nên mạnh mẽ hơn để có thể đứng ngang hàng với cô. Chính khát vọng ấy đã kích hoạt một kỹ năng hiếm giúp Bell tăng trưởng sức mạnh với tốc độ vượt xa người bình thường.
+
+Khi Bell ngày càng nổi tiếng nhờ tốc độ thăng tiến đáng kinh ngạc, cậu dần thu hút sự chú ý của nhiều người và nhiều Familia khác. Những cuộc phiêu lưu trong Dungeon đưa Bell đối mặt với quái vật ngày càng nguy hiểm, các tầng sâu chưa được khám phá hoàn toàn và những thế lực muốn lợi dụng hoặc cản trở cậu. Trong quá trình đó, Familia của Hestia cũng dần phát triển khi có thêm đồng đội mới gia nhập, từ những người thợ rèn, pháp sư cho đến các chiến binh mạnh mẽ.
+
+Bên cạnh các cuộc chiến trong Dungeon, câu chuyện còn khai thác mối quan hệ giữa các Familia và các vị thần trong thành phố Orario. Những xung đột về quyền lực, danh tiếng và lợi ích thường xuyên xảy ra, kéo Bell vào các cuộc chiến vượt xa phạm vi của một mạo hiểm giả bình thường. Từ một cậu bé vô danh, Bell dần trở thành nhân vật có ảnh hưởng lớn đến vận mệnh của thành phố.
+
+Xuyên suốt hành trình, Bell không chỉ chiến đấu để mạnh lên mà còn học được ý nghĩa của lòng dũng cảm, tình bạn, sự hy sinh và trách nhiệm. Cậu gặp gỡ nhiều đồng đội và đối thủ đáng nhớ, đồng thời từng bước khám phá những bí mật nằm sâu bên trong Dungeon – nơi được cho là còn ẩn chứa những mối đe dọa vượt ngoài hiểu biết của con người.
+
+Tóm lại, **DanMachi** là câu chuyện về một thiếu niên mạo hiểm giả bắt đầu từ con số không, từng bước trưởng thành thông qua những cuộc phiêu lưu trong Dungeon, xây dựng đồng đội, bảo vệ những người mình trân trọng và tiến gần hơn đến ước mơ trở thành một anh hùng thực thụ. Bộ truyện kết hợp hành động, fantasy, phiêu lưu, thần thoại và một chút lãng mạn, với trọng tâm là hành trình phát triển của Bell Cranel từ một người yếu đuối trở thành một trong những mạo hiểm giả xuất sắc nhất Orario.
